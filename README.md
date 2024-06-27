@@ -1,0 +1,1 @@
+# Anao-bombado-atraz-da-esquina-esperando-o-lucas-25cm.
